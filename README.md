@@ -8,7 +8,7 @@ Email Me 👉 ✉️ **pramishtripathi0@gmail.com** For Collaboration/Project or
 - 📫 **How to reach me:** pramishtripathi0@gmail.com
 - 😄 **Pronouns:** Pramish Sir
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
-
+- wroking on the project    https://ai-scribe-forge-23.lovable.app/
 
 ## 🌐 Socials:
 [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/Pramish Tripathi) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/pramish_tripathi) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:pramishtripathi0@gmail.com) 
